@@ -1,4 +1,4 @@
-# 🥷 Blade Ball Script – Fast Auto Parry + All Sword Unlock (Keyless Edition 2025)
+# Blade Ball Script – Fast Auto Parry + All Sword Unlock (Keyless Edition 2025)
 
 Stay untouchable. This Blade Ball Script is crafted for instant reaction, no-key use, and full compatibility with popular scripting hubs. Featuring pro-level auto parry and spam protection, it’s the cleanest, most efficient script you'll run in 2025.
 
